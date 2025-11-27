@@ -7,7 +7,7 @@
 <br/>
 <br/>
 
-- Name: **SqdAndrik**
+- Name: **s0rakks**
 
 - Residing in: **Ukrainian**, **Lviv**
 
